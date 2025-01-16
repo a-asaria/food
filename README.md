@@ -5,6 +5,3 @@
 * [Gallinejas and Entresijos: The Melancholic Mesentery of Madrid]([url](https://www.vittlesmagazine.com/p/gallinejas-and-entresijos-the-melancholic)), Vittles, September 2021
 * [The Food of the Basque Derby]([url](https://stadio.football/latest/foodbasquederby)), Stadio, April 2021
 * [King Cassava]([url](https://www.vittlesmagazine.com/p/vittles-219-two-east-african-indian)), Vittles, September 2024
-
-
-[dfsdfsd]([url](https://thecheesemagazine.newsstand.co.uk/))
