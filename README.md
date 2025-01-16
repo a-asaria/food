@@ -1,4 +1,4 @@
-# List of food articles
+# Published food articles
 * [Crisps de Madrid](https://www.vittlesmagazine.com/p/crisps-de-madrid), Vittles, September 2024
 * [Where Wheat Grows](https://www.sourcedjourneys.com/post/where-wheat-grows), Sourced Journeys, Jan 2022
 * Pajata, [The Cheese Magazine: Issue 2](https://thecheesemagazine.newsstand.co.uk/) (print), December 2021
